@@ -1,4 +1,4 @@
-#🌐 Kolhapur Bachat Gat – Empowering Local Women Entrepreneurs
+🌐 Kolhapur Bachat Gat – Empowering Local Women Entrepreneurs
 Website: https://kolhapurbachatgat.com
 
 Overview:
